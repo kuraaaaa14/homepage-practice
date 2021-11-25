@@ -1,3 +1,3 @@
-# kuraaaaa
+#Welcome to the Shinichi's page
 
-/プロフィール
+・プロフィール
