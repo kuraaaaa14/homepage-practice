@@ -8,4 +8,7 @@
 
 ### Hobby<br>
 ・ゲーム<br>
-・音楽<br>
+  ・APEX LEGENDS<br>
+  ・valorant<br>
+  　　　　　etc...<br>
+・VTuber<br>
