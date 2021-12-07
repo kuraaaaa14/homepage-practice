@@ -12,3 +12,7 @@
   ・valorant<br>
   　　　　　etc...<br>
 ・VTuber<br>
+ ・Hololive<br>
+ ・にじさんじ<br>
+ ・ぶいすぽっ！<br>
+　　　　　　etc...<br>
