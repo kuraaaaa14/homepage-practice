@@ -7,11 +7,11 @@
 ・School KPU
 
 ### Hobby<br>
-・ゲーム<br>
+#### ・ゲーム<br>
   ・APEX LEGENDS<br>
   ・valorant<br>
   　　　　　etc...<br>
-・VTuber<br>
+#### ・VTuber<br>
  ・Hololive<br>
  ・にじさんじ<br>
  ・ぶいすぽっ！<br>
